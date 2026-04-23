@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://github.com/CarlosLunaa22/CarlosLunaa22/blob/main/Gemini_Generated_Image_dmqgo3dmqgo3dmqg.png?raw=true" />
+  <img src="https://github.com/CarlosLunaa22/CarlosLunaa22/blob/main/Gemini_Generated_Image_wsubycwsubycwsub.png?raw=true" />
 </p>
 # 📘 README – Perfil del Estudiante
 
